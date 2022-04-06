@@ -1,5 +1,0 @@
-# Strogonoff :chicken
-
-
-#sddss
- -  ssddsdsdsds
